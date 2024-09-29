@@ -12,3 +12,4 @@ This is a link to the class : [http1554](https://humber.ca/transferoptions/cours
 
 >[!Note]
 > This is a note!
+Professor Momna Sheikh makes learning enjoyable with their fun approach and is incredibly patient, ensuring every student feels supported!
